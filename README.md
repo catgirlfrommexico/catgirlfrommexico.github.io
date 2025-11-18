@@ -10,3 +10,4 @@ i also don't want to go to a mental hospital. please
 
 - [i think i fucked up (2025-11-17)](/i-think-i-fucked-up)
 - [my apologies (2025-11-18)](/my-apologies)
+- [on suicide (2025-11-18)](/on-suicide)
