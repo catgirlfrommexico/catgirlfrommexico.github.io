@@ -13,3 +13,4 @@ i also don't want to go to a mental hospital. please
 - [on suicide (2025-11-18)](/on-suicide)
 - [goodbye to a world (2025-11-19)](/goodbye-to-a-world)
 - [giving up (2025-11-23)](/giving-up)
+- [why (2026-02-06)](/why)
