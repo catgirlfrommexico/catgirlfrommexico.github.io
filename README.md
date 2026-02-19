@@ -14,3 +14,4 @@ i also don't want to go to a mental hospital. please
 - [goodbye to a world (2025-11-19)](/goodbye-to-a-world)
 - [giving up (2025-11-23)](/giving-up)
 - [why (2026-02-06)](/why)
+- [gender (2026-02-19)](/gender)
