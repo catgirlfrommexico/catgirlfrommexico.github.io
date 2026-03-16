@@ -15,3 +15,4 @@ i also don't want to go to a mental hospital. please
 - [giving up (2025-11-23)](/giving-up)
 - [why (2026-02-06)](/why)
 - [gender (2026-02-19)](/gender)
+- [friends (2026-03-16)](/friends)
