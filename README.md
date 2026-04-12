@@ -16,4 +16,5 @@ i also don't want to go to a mental hospital. please
 - [why (2026-02-06)](/why)
 - [gender (2026-02-19)](/gender)
 - [friends (2026-03-16)](/friends)
-- [re: gender (2026-04-10](/re-gender)
+- [re: gender (2026-04-10)](/re-gender)
+- [pros and cons (2026-04-12)](/pros-and-cons)
