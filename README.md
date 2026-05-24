@@ -19,3 +19,4 @@ i also don't want to go to a mental hospital. please
 - [re: gender (2026-04-10)](/re-gender)
 - [pros and cons (2026-04-12)](/pros-and-cons)
 - [back (2026-04-12)](/back)
+- [stuck in my mind (2026-05-23)](/stuck-in-my-mind)
